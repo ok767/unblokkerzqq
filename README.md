@@ -6,7 +6,7 @@ https://ludiub.com/
 https://neb.anirudhiscool.repl.co/                  
 https://www.arr3.gq/                  
 https://googlemath.herokuapp.com/                  
-https://amogusbypaser.googleclassroomschool.repl.co/
+https://amogusbypaser.googleclassroomschool.repl.co/                                              
 https://mathclassroom.glitch.me/games                  
 https://ridgethread.com/                  
 https://all-about-the-states.info/ ( WeSupportIo is password then type 556 then click enter)                  
